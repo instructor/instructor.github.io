@@ -13,4 +13,4 @@ Wie James Blunt immer schon sagt:
 > bitte geschüttelt, nicht gerührt
 > mein Name ist Blunt, James Blunt
 
-<img src="https://en.wikipedia.org/wiki/James_Blunt#/media/File:James_Blunt_Tom_Brasil_(25624592027).jpg" />
+<img src="https://upload.wikimedia.org/wikipedia/commons/7/76/James_Blunt_Tom_Brasil_%2825624592027%29.jpg" />
