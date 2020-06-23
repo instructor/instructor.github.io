@@ -7,3 +7,8 @@ James Bond, Agent 007, ist ein von Ian Fleming erfundener Geheimagent, der für 
 * pushs explodieren lassen
 * viele Gadgets pullen
 * den Assistentinnen-Branch mergen
+
+Wie James Blunt immer schon sagt:
+
+> bitte geschüttelt, nicht gerührt
+> mein Name ist Blunt, James Blunt
