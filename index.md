@@ -1,5 +1,3 @@
-A website for my favourite character is currently being built here!
----
 # "James Blunt", @ Service to Her Majesty
 
 My name is Blunt, James Blunt
