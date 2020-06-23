@@ -1,2 +1,3 @@
-# James Blunt, at Service to Her Majesty
+# James Blunt, in Diensten Ihrer Majestät
 
+James Bond, Agent 007, ist ein von Ian Fleming erfundener Geheimagent, der für den MI6 arbeitet. In dem Roman Casino Royale (1953) hatte er seinen ersten Auftritt. Fleming schrieb bis zu seinem Tod im Jahr 1964 zwölf Romane und neun Kurzgeschichten um James Bond. Die Kurzgeschichten wurden in zwei Sammelbänden veröffentlicht.
